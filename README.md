@@ -1,3 +1,5 @@
-# \# Gentleman Station
+https://is.gd/ggl_xadke
 
-An opensource platform ;)
+#### chi chi khoi? gayo ghara HAHA
+
+# `Prof. - Xadk3` le eklai garcha aba.
