@@ -1,5 +1,5 @@
 https://is.gd/ggl_xadke
 
-#### chi chi khoi? gayo ghara HAHA
+#### chi chi khoi? gayo ghara HAHA (soltilai bolna matra aaudo raicha, garne bela gayo LMAO - bichara :( hoping he'll get a life soon.)
 
 # `Prof. - Xadk3` le eklai garcha aba.
