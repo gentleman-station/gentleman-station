@@ -1,4 +1,4 @@
-https://is.gd/ggl_xadke | https://is.gd/xadkekopc
+https://is.gd/ggl_xadke | https://is.gd/xadkekopc | https://github.com/prof-xadk3/squarespace-ancillary
 
 # `Prof. - Xadk3` 😐
 
